@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analysis and Data Science...
 - 🌱 I’m currently learning .programming and Economics..
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Tnemibo@googlemail.com
+- 📫 How to reach me ...linkedin www.linkedin.com/in/nemibo-koko-8346b98b
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...Love sport and data 
 
